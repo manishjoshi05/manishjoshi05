@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning ...web development 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- email manishjoshii167@gmail.com
+- email manijoshiop@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: 
